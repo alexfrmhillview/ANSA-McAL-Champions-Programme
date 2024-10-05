@@ -1,6 +1,8 @@
 # ANSA-McAL-Champions-Programme
 Video submission/assets I created for my application to the ANSA McAL Champions Programme.
 
+https://youtu.be/x3MLGrLfGqI
+
 The Champions Programme is a 24-month rotational programme, structured to optimize professional exposure, deepen technical expertise and cultivate leadership competence.
 
 You have invested in your education; now invest in your future at the ANSA McAL Group through our Champions Programme. Applications welcomed.
